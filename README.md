@@ -1,4 +1,4 @@
-### Hi there! tudo bem? espero que sim :)
+### Olá! tudo bem? espero que sim :)
 
 <div align="center">
   <a href="https://github.com/stephaniecs98">
